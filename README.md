@@ -1,1 +1,0 @@
-# skillwill-academy
